@@ -8,6 +8,11 @@ I hope you would help me to get new opportunity.
 Thank you.
 Best Regards
 
+- 📫 How to reach me: 
+skype: live:devphs513
+discord: Galaxy#7020
+wechat: ID: wxud_6uy5ahayok8112 Name: Galaxy
+
 <!--
 **galaxyaio/GalaxyAIO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
